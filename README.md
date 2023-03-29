@@ -9,8 +9,10 @@
 <p dir="auto"><a href="https://cgapp02.top/" rel="nofollow">https://cgapp02.top</a></p>
 <p dir="auto"><a href="https://cgapp03.top/" rel="nofollow">https://cgapp03.top</a></p>
 <p dir="auto"><a href="https://cgapp04.top/" rel="nofollow">https://cgapp04.top</a></p>
-<p dir="auto">永久官网【需翻墙】：&nbsp;<a href="https://998.su/" rel="nofollow">https://998.su</a></p>
-<p dir="auto">官方TG瓜群【需翻墙】：&nbsp;<a href="https://t.me/chiguawang" rel="nofollow">https://t.me/chiguawang</a></p>
+<p dir="auto">永久官网【需翻墙】：&nbsp;</p>
+<p dir="auto"><a href="https://998.su/" rel="nofollow">https://998.su</a></p>
+<p dir="auto">官方TG瓜群【需翻墙】：&nbsp;</p>
+<p dir="auto"><a href="https://t.me/chiguawang" rel="nofollow">https://t.me/chiguawang</a></p>
 <p dir="auto">网址打不开？？？</p>
 <p dir="auto">1.请切换网络WIFI/4G/5G 或使用科学上网工具（VP恩）</p>
 <p dir="auto">2.请选择完整地址到浏览器访问，有前显https://</p>
