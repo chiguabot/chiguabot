@@ -1,16 +1,15 @@
 <p dir="auto">黑料吃瓜网最新地址👋(最新更新时间2023-03-29)</p>
-<p dir="auto">免翻最新线路：&nbsp;</p>
-<p dir="auto"><a href="https://cgg001.com/" rel="nofollow">https://cgg001.com</a></p>
-<p dir="auto"><a href="https://cgg002.com/" rel="nofollow">https://cgg002.com</a></p>
-<p dir="auto"><a href="https://cgg003.com/" rel="nofollow">https://cgg003.com</a></p>
-<p dir="auto"><a href="https://cgg004.com/" rel="nofollow">https://cgg004.com</a></p>
+<p dir="auto">最新免翻线路：&nbsp;</p>
+<p dir="auto"><a href="https://link.zhihu.com/?target=https://cgd01.top/" rel="nofollow">最新线路一</a></p>
+<p dir="auto"><a href="https://link.zhihu.com/?target=https://cgd02.top/" rel="nofollow">最新线路二</a></p>
+<p dir="auto"><a href="https://link.zhihu.com/?target=https://cgd03.top/" rel="nofollow">最新线路三</a></p>
+<p dir="auto"><a href="https://link.zhihu.com/?target=https://cgd08.top/" rel="nofollow">最新线路四</a></p>
+<p dir="auto">最新短域名：</p>
+<p dir="auto"><a href="https://255.su/" rel="nofollow">255.su</a></p>
 <p dir="auto">吃瓜app下载：</p>
-<p dir="auto"><a href="https://cgapp01.top/" rel="nofollow">https://cgapp01.top</a></p>
-<p dir="auto"><a href="https://cgapp02.top/" rel="nofollow">https://cgapp02.top</a></p>
-<p dir="auto"><a href="https://cgapp03.top/" rel="nofollow">https://cgapp03.top</a></p>
-<p dir="auto"><a href="https://cgapp04.top/" rel="nofollow">https://cgapp04.top</a></p>
+<p dir="auto"><a href="https://link.zhihu.com/?target=https://cgapp006.top/" rel="nofollow">点击前往下载</a></p>
 <p dir="auto">永久官网【需翻墙】：&nbsp;</p>
-<p dir="auto"><a href="https://998.su/" rel="nofollow">https://998.su</a></p>
+<p dir="auto"><a href="https://998.su/" rel="nofollow">998.su</a></p>
 <p dir="auto">官方TG瓜群【需翻墙】：&nbsp;</p>
 <p dir="auto"><a href="https://t.me/chiguawang" rel="nofollow">https://t.me/chiguawang</a></p>
 <p dir="auto">网址打不开？？？</p>
