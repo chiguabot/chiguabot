@@ -1,4 +1,4 @@
-<p dir="auto">黑料吃瓜网最新地址👋(最新更新时间2023-03-29)</p>
+<p dir="auto">黑料吃瓜网最新地址👋(最新更新时间2023-06-30)</p>
 <p dir="auto">最新免翻线路：&nbsp;</p>
 <p dir="auto"><a href="https://link.zhihu.com/?target=https://cgd01.top/" rel="nofollow">最新线路一</a></p>
 <p dir="auto"><a href="https://link.zhihu.com/?target=https://cgd02.top/" rel="nofollow">最新线路二</a></p>
